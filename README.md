@@ -31,6 +31,13 @@ Mainly we advise if you do not have experience, be very careful with the manipul
 deformations of inexperienced users such as: turning, frowning, narrowing, distorting proportions or adding third elements without a prior proper study.
 All these alterations will damage the image of the brand.
 
+
+___________________________________
+
+FONT:
+
+We use in the whole doc and recomend as standar font for the new digibyte brand the inter open source family font https://rsms.me/inter/ all credit for its community, so thanks for share this amaizing font study.
+
 __________________________________
 
 
