@@ -1,5 +1,6 @@
-![image](https://user-images.githubusercontent.com/87337618/126503568-a5957368-9a82-45cc-ab60-5af1b436d277.png)
 
+
+![Mesa de trabajo 56-100](https://user-images.githubusercontent.com/87337618/126504213-f4befc0d-1640-400e-92f9-80c6473f71a6.jpg)
 
 
 # digibyte
