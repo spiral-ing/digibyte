@@ -11,6 +11,7 @@ $DGB Accepted Here: DPosQHtKxAVeuiH9DX43XgAUfvrUakZt7e
 
 ________________________________
 
+Intro:
 
 According to the nature of the crypto environment and its expression needs in different media, the following presentation aims 
 to develop a study and design about the digibyte brand to promote a new rebranding that helps to improve and update of the current image. 
@@ -43,5 +44,9 @@ __________________________________
 
 License:
 
-All isotypes, logotypes, imagotypes and icons designs and variations included in this document are under license Attribution-NonCommercial-ShareAlike 4.0 International (CC BY-NC-SA 4.0)
-https://creativecommons.org/licenses/by-nc-sa/4.0/
+All isotypes, logotypes, imagotypes and icons designs and variations included in this document are under license Attribution-NonCommercial-ShareAlike 4.0 International (CC BY-NC-SA 4.0) https://creativecommons.org/licenses/by-nc-sa/4.0/
+
+
+
+
+Thanks for Share!
