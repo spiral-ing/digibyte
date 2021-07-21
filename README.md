@@ -1,14 +1,10 @@
-
-
-![Mesa de trabajo 56-100](https://user-images.githubusercontent.com/87337618/126504213-f4befc0d-1640-400e-92f9-80c6473f71a6.jpg)
-
-
-# digibyte
-
-Rebranding Study!
-
+![Mesa de trabajo 56-8](https://user-images.githubusercontent.com/87337618/126505381-9404ef38-1da2-4982-be88-a8d176f22723.png)
 
 _______________________________
+
+
+#digibyte
+Rebranding Study!
 
 Thanks :
 
@@ -62,3 +58,6 @@ All isotypes, logotypes, imagotypes and icons designs and variations included in
 
 
 Thanks for Share!
+
+
+![logotype-8](https://user-images.githubusercontent.com/87337618/126504823-43b1757d-21e5-4c90-8165-c49e374ec677.png)
