@@ -60,4 +60,3 @@ All isotypes, logotypes, imagotypes and icons designs and variations included in
 Thanks for Share!
 
 
-![logotype-8](https://user-images.githubusercontent.com/87337618/126504823-43b1757d-21e5-4c90-8165-c49e374ec677.png)
