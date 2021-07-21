@@ -1,5 +1,11 @@
 # digibyte
-rebranding study
+
+Rebranding Study
+
+_______________________________
+
+Thanks :
+
 
 The brand study design and manual guidelines was made with love ❤️ by https://t.me/s_p_i_r_a_l for the digibyte community.
 
