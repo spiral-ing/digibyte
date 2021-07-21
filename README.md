@@ -1,6 +1,6 @@
 # digibyte
 
-Rebranding Study![image](https://user-images.githubusercontent.com/87337618/126503282-d516fa4d-ffda-4537-9b94-36010b6c8fde.png)
+Rebranding Study!
 
 
 _______________________________
