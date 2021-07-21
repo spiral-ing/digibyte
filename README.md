@@ -1,3 +1,7 @@
+![image](https://user-images.githubusercontent.com/87337618/126503568-a5957368-9a82-45cc-ab60-5af1b436d277.png)
+
+
+
 # digibyte
 
 Rebranding Study!
