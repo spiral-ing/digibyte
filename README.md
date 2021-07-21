@@ -43,7 +43,7 @@ ___________________________________
 
 FONT:
 
-We use in the whole doc and recomend as standar font for the new digibyte brand the inter open source family font https://rsms.me/inter/ all credit for its community, so thanks for share this amaizing font study.
+We use in the whole doc and recommend as standard font for the new digibyte brand the inter open source family font https://rsms.me/inter/ all credit for its community, so thanks for share this amazing font study.
 
 __________________________________
 
